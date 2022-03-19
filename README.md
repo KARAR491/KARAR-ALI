@@ -10,5 +10,5 @@ Iam love programming
 
 ****#This My Profile****
 
-**** __ My Discord __ **** `KARAR#0560`
-**** __ [ My Server ] (https://discord.gg/XdmAZbkDFV)
+**** My Discord**** `KARAR#0560`
+****[ My Server ] (https://discord.gg/XdmAZbkDFV)****
